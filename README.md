@@ -21,7 +21,9 @@ Connect with Me
 Let's connect on other platforms:
 
 LinkedIn :- www.linkedin.com/in/pranav-kumar-07singh
+
 Twitter :- http://twitter.com/@PranavK14430992
+
 Feel free to reach out for discussions, collaborations, or to share your own learning experiences!
 
 Happy coding and learning! 🚀📊
